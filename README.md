@@ -7,4 +7,5 @@ I hope to learn about blockchain technology in the near future too!
 Check out some of my projects below
 
 | | |
+
 v v v
